@@ -234,7 +234,7 @@ For major changes, please open an issue first to discuss what you would like to 
 
 ## Contact
 
-For any questions, issues, or inquiries, please feel free to contact me at [sabineshkumar07@gmail.com](mailto:sabineshkumar07@gmail.com).
+For any questions, issues, or inquiries, please feel free to contact me at [kannansanjay503@gmail.com](mailto:sabineshkumar07@gmail.com).
 
 ---
 
